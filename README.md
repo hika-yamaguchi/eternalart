@@ -5,7 +5,7 @@
 - I majors in medicine.
 - I'm interested in strong AI, and neuroscience (whichever theoretical or experimental).
 - How to reach me: plz DM to Twitter@kyu_beta003.
-- Pronous: "Umapyoi Densetsu", "Umamusume Pretty Derby", "Make debut!", "Special Week", and etc.
+- Pronouns: "Umapyoi Densetsu", "Umamusume Pretty Derby", "Make debut!", "Special Week", and etc.
  
 <!--
 **eternalart/eternalart** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
